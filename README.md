@@ -1,1 +1,1 @@
-- I’m @sakkarose. Third-year student. I'm currently getting good at University of Information Technology.
+- I’m @sakkarose. A Third-year student. And currently getting good at University of Information Technology.
