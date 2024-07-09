@@ -1,1 +1,1 @@
-- I’m @sakkarose. Anyway, most things here are for my studying purposes so they're not something useful.
+- I’m @sakkarose. I'm living without any achivement so don't expect something useful from me xD.
